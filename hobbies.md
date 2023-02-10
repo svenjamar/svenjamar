@@ -1,0 +1,1 @@
+running, petting dogs
