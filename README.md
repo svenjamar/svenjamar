@@ -4,3 +4,4 @@ MSc in Evolutionary Genetics at UZH (Switzerland)
 Minor in Bioinformatics (UZH)
 PhD in Evolutionary genetics Life Science Grad School UZH (Switzerland) 
 My hobbies include diving, running and cooking 
+My favourite color is turquoise 
